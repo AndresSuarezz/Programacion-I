@@ -1,6 +1,6 @@
-# Apuntes Libro Satanás - Mario Mendoza
+# **Apuntes Libro Satanás - Mario Mendoza**
 
-## Cap 1 - Una Presencia Maligna
+## **Cap 1 - Una Presencia Maligna**
 
 ### Historia de María
 
@@ -65,7 +65,7 @@ El padre Ernesto habla con el padre **Enrique** de la historia que le conto aque
 Despues el padre toma el bus para irse a la casa, cuando llega una mujer gorda y le dice que algo pasa en la iglecia y que debe ir de inmediato, cuando llega se encuentra con un tumulto de gente rodenado la entrada de la iglesia y el señor **Gerardo** un lider comunitario le dice que un hombre cubierto de sangre y con un cuchillo entro a la iglesia, al entrar se cuentra con el hommbre arrodillado frente al altar, tambien nota un hombre jorobado ahogandose en su propio llanto.
 
 ---
-## Cap 2 - Las Lóbregas Tinieblas del Hades
+## **Cap 2 - Las Lóbregas Tinieblas del Hades**
 
 ###  Historia de María
 
@@ -115,7 +115,7 @@ El padre siente rabia por todo lo que el le dice, cuando lo ve a los ojos ya no 
 
 ---
 
-## Cap 3 - Entre dos Dimensiones
+## **Cap 3 - Entre dos Dimensiones**
 
 ### Historia de Andres
 
@@ -155,4 +155,25 @@ La mujer saca unos documentos que tenia en sus manos y se los muestra al padre, 
 
 Cuando su hija quiere hablar de las voces dice que no se acuerda de nada.
 
-pag 35
+El padre Ernesto decide seguir a Esther hasta su casa y piensa que nunca habia sentido esa sensacion de caminar junto a una mujer, cuando llegan a la casa los olores empiezan a entrar en la nariz del padre, primero las flores, segundo el olor a antiguo y por ultimo al subir al segundo piso, siente el olor de las cosas que pasan por el desgue de la ciudad, excremento, semen, flujos menstruales, orines, etc. Tambien siente una presencia externa que los acompaña. Luego le dicen que el olor no es pq se haya roto alguna cañeria, sino que por mucho que limpien el olor no se va. Cuando entra al cuarto se sienta en la silla y ve auna muchacha hermosa acostada en la cama, con un cuerpo lindo.
+
+Posteriormente la muchacha le pregunta si le gusta al padre, el le dice que es bella, ella le responde si la desea, el dice que no pero ella asegura que el quiere tocarla, ella quiere que el padre se aproveche de ella.
+
+Luego la mujer empieza hablar con una voz varonil, y empieza a insultar al padre, luego la muchacha se levanta el camison y se empieza a masturbar asegurando que ella necesita es de un hombre, luego entre los dos empiezan a insultarse. Luego la muchacha comienza a decirle que el es un asesino, que tiene las manos manchadas de sangre (por el caso anterior), el padre no se aguanto y salio del cuarto, pero sintio una erección al salir.
+
+### Historia de María
+
+La historia continua en la discoteca mientras todos bailan, luego un hombre empieza hablar con maria de una casa que compro en 120 Millones, en Rosales. El hombre tambien le comenta que desea irse a vivir unos meses a Europa (Paris).
+
+La mujer en medio de esa conversacion recuerda cuando vivia en Miraflores cerca de Amazonas, cuando en la mañana se desperto y lo primero que escucho fueron disparos y explosiones, su madre la tomo a ella y a su hermana **Alix** y salieron corriendo hacia la plaza del pueblo, tambien dicen que es la guerrilla se va tomar el pueblo. Cuando van corriendo su madre se le van callendo las rodillas hasta que se desploma en el suelo, las dos hermanas ven un agujero de sangre en la parte trasera de la cabeza de su madre, y quedan temblorosas e indefensas en medio de la batalla. Luego regresa a la conversacion que tenia con aquel hombre.
+
+Volvio a regresar al pasado, cuando encontraron el cuerpo los de la cruz roja se lo llevaron y a las dos hermanas le dijeron que las enviarian al bienestar, cosa que no sucedio y las dejaron en un cuartel militar en bogota, no comian bien y las mujeres de la cocina las contrataron para practicamente esclavizarlas, las ponian hacer muchas cosas, Alix le dice a su hermana que decide irse, prometiendose que volverian a verse.
+
+Luego se fue ella para la calle y sufrio varios años, vivio de vagabunda, le toco robar algunas veces. Cuando ella se escapo a los 7 años un grupo de gamines la acogio para empezar la superviviencia en las calles.
+
+Un sacerdote la ayudo a estudiar en una institucion de caridad. El habia sido el que mas la habia ayudado. Cuando termino la secundaria ella trato de buscar empleo pero no consiguio. Entonces empezo a vender tinto y agua aromatica en la plaza del mercado.
+
+Cuando el hombre se levanta de su asiento María hecha la pastilla, cuando regresa y la toma empieza a sentirse mal y se va al baño. Maria en su apartamento espera la llamada de Pablo, cuando la llama le dicen que sacaron 3 Millones y que mañana le daran su parte.
+
+
+## **Cap 4 - Luna Llena**

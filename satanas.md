@@ -177,3 +177,38 @@ Cuando el hombre se levanta de su asiento María hecha la pastilla, cuando regre
 
 
 ## **Cap 4 - Luna Llena**
+
+### Histria de Ernesto
+
+Vemos que el padre Ernesto le pide a Irene que la deje estar con ella(tono suplicante),Irene se sienta en la cama.
+
+Irene le dice que el le dijo que olvidara todo lo ocurrido, le reclama que la ultima vez dejo de hablarle y que se siente mal porque el cree que ella no tiene sentimientos, el le dice que no la dejara, Irene le reclama que el solo lo hace por el momento. Irene le dice que la ultima vez le dijo que era mas importante su vocacion que estar con ella, y ahora el quiere mas estar con ella, que a pesar de todo nunca ha faltado a su vocacion y que desearia ser de ladrillo para no tener sentimientos y que no aguanta mas lo que siente por ella y que se encuentra desesperado.
+
+Irene le dice que ella aun lo quiere, el comenta que ella tiene muchos pretendientes pero eso no le importa a Irene.
+
+Irene esta un poco furiosa porque cuando el se fue con la señora Esther no se despidio y cuando llego lo vio todo sudado y nervioso, tambien le dice que la gente habla de que la niña tiene un demonio dentro.
+
+De un momentro a otro el padre Ernesto se lanza sobre Irene a darle besos para tener sexo, el padre Ernesto empieza a masturbar a Irene.
+
+El le dice que la ama, y ela tambien le gusta estar con el, el tambien le comenta que jamas se separara de ella, ella le responde que siempre le entra el arrepentimiento.
+
+El le dice que ha estado pensando las cosas y que siempre la ha querido de verdad, que le habla con el corazon, ella le dice que no puede hacerlo porque el es mejor sacerdote del mundo y que oye a le gente decirlo, el le comenta que el comete mucho pecados. El le dice que se retirara, ella le reclama diciendole que se cansara de ella y que la desilucionara, el le afirma que esta seguro de lo que quiere hacer. El le dice que ya no sirve para estar en una iglesia.
+
+Luego tienen sexo.
+
+
+### Historia de Maria
+
+Maria se encuentra haciendo unas de sus misiones, es un hombre empresario de computadores, se comporto bien con ella. El se arrecuesta sobre la mesa porque se siente mareado y mal desea ir al hospital, pero maria le dice que mejor espere y que llamara para que vengan a buscarlo, ella va donde Pablo y le dice que ya el muchacho esta mal, que tiene baja la tension y que siente taquicardia. Pablo le dice que hablaran mañana por la mañana.
+
+Sale a la avenida y toma un taxi, el conductor le habla con una voz juvenil, ella ve al joven que viste de jean y camisa deportiva tambien se da cuenta que el la esta observando.
+
+El taxi la lleva por varios lugares para nunca dejarla en su casa, ella le reclama y pide que la deje salir del carro pero el esta furioso y no la deja.
+
+Un hombre sale del asiento del copiloto asustando a Maria, y le pone una navaja, el hombnre empieza a pasarle la lengua por los labios.
+
+Luego paran en un potrero afuera de bogota, alla deciden quien tendra sexo con Maria con una moneda.
+
+El conductor empieza a desvestir a Maria dentro del auto, el hombre le pega par de veces y la desnuda mientra le besa los senos. El hombre despues de terminar se da cuenta que Maria era virgen, sale y le dice al copiloto, el copiloto entra enseguida al auto.
+
+Luego dejan a Maria por ahi y el auto desparece en la oscuridad. Maria siente el frio de la media noche tambien siente mucho dolor en su cuerpo, se dirije a la avenida para pedir ayuda.
